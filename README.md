@@ -16,3 +16,6 @@ https://www.bandlab.com/post/5399a12f-c356-48c7-8e38-aeeb5c7ee09b   - Run run! (
 
 
 https://www.bandlab.com/post/27fef656-7a21-4f45-ad17-5f1be750f31e   - The Call Of Nature
+
+
+https://www.bandlab.com/post/fdbcbf76-c1b7-41d6-9df0-d03a54ef8e08    - Tryin'3 8 bit (sounds like FNF song omg 🥹)
